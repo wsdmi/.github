@@ -16,6 +16,6 @@ Our teachers are dedicated and committed to ensuring your child's academic succe
 
 ## About Waterford School District
 
-Please the link to our YouTube video
+Please visit the link to our YouTube video
 
 https://www.youtube.com/watch?v=xWSi5RA1Wh0
